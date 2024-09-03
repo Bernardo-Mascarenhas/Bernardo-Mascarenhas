@@ -1,0 +1,4 @@
+- Brasil ~ 🇧🇷
+- Student ~ 📖
+- Phyton ~ 🐍
+- 14y
